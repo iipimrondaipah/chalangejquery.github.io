@@ -1,1 +1,0 @@
-# chalangejquery.github.io
